@@ -1,2 +1,2 @@
-# my-java-events-miss-adventure
+# my-java-events-misadventure
 Ъъъм .. Лъчо .. имам въпрос
